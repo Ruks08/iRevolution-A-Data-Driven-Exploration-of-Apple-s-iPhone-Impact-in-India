@@ -270,7 +270,8 @@ Strengthen online retail channels
 
 Focus on premium branding strategy
 
-
+Video Link:
+(https://drive.google.com/file/d/15SwM6-GCqJ3LKnZqe_G5nRoKODxy_Thh/view?usp=drive_link)
 
 Shaik Ruksana
 Final Year Data Analytics Project
